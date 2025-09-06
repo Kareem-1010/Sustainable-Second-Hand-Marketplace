@@ -1,1 +1,0 @@
-# Sustainable-Second-Hand-Marketplace
